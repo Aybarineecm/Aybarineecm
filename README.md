@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Aybarineecampbellmendez@gmail.com**
 
-- ⚡ Fun fact **I am bilingual, I love football and I love a good uno game!**
+- ⚡ Fun fact **I am bilingual( Spanish & English ) , I love football and I love a good uno game!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
